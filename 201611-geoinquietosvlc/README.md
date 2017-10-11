@@ -1,0 +1,1 @@
+[Diapositivas](http://bit.ly/160629-intro-geoinquietosvlc) de la charla de introducción a [Geoinquietos Valencia](http://geoinquietos.org/valencia).
